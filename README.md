@@ -1,2 +1,2 @@
 # My-program-in-A-U-da-ci-ty
-一定要在一年内（2017年11月1日）修完，我不会说我是为了返还的学费O(∩_∩)O哈哈~
+Since the choice of the Machine Learning,you only trials and hardships!
